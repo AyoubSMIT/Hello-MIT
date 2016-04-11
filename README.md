@@ -1,2 +1,3 @@
 # Hello-MIT
-just another repository
+Today is the first day in my stage so i'm so happy to do well 
+Hamdulilah :)
